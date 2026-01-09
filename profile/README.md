@@ -37,9 +37,9 @@ Ready to bring your software vision to life? Let's discuss your project requirem
 
 📧 **Contact:** contact@blunova.com  
 🌐 **Website:** [www.blunovatech.com](https://www.blunovatech.com)  
-📱 **Phone:** +254 (405) 45704  
+📱 **Phone:** +254 795512357  
 💼 **LinkedIn:** [BLU-NOVA TECH](https://linkedin.com/company/blu-nova-tech/)
 
 ---
 
-*© 2025 BLU-NOVA TECH. Software. Strategy. Success.*
+*© 2026 BLU-NOVA TECH. Software. Strategy. Success.*
